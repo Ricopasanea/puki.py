@@ -1,0 +1,2 @@
+# puki.py
+DDOS KONTOL
